@@ -2,7 +2,7 @@
 
  ✰ 𝙿𝚘𝚍𝚎 𝚖𝚎 𝚌𝚑𝚊𝚖𝚊𝚛 𝚍𝚎 𝙱𝚕𝚎𝚑/𝙱𝚕𝚎𝚑𝚛 - 𝚎𝚕𝚊/𝚍𝚎𝚕𝚊 ✰
  
- <img src="https://i.pinimg.com/originals/44/eb/17/44eb17afabc36a2df89e9bed6494587b.gif" />
+ <img height="1000000" width="2000000" src="https://i.pinimg.com/originals/44/eb/17/44eb17afabc36a2df89e9bed6494587b.gif" />
 
  ## 𝚂𝚘𝚋𝚛𝚎 𝚖𝚒𝚖
  - 𝙲𝚘𝚗𝚑𝚎𝚌𝚒𝚖𝚎𝚗𝚝𝚘 𝚎𝚖 𝚕𝚒𝚗𝚐𝚞𝚊𝚐𝚎𝚗𝚜 𝚍𝚎 𝚙𝚛𝚘𝚐𝚛𝚊𝚖𝚊𝚌̧𝚊̃𝚘 𝚌𝚘𝚖𝚘: 𝙲, 𝙲++, 𝙿𝚢𝚝𝚑𝚘𝚗, 𝙷𝚃𝙼𝙻 𝚎 𝙹𝚊𝚟𝚊
